@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things.
 - 🌱 I’m currently learning  urban planning
 - 💞️ I’m looking to collaborate on hotmail.com.
-- 📫 How to reach me opt2mis1@outlook.com
+- 📫 How to reach me opt2mis@hotmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: lived all across canada
 
